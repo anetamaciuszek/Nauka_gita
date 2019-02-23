@@ -1,3 +1,5 @@
 # Nauka Gita
 anetamaciuszek
-wprowadzam zmiany 
+wprowadzam zmiany
+:kissing_closed_eyes:s
+s
